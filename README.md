@@ -1,1 +1,1 @@
-# Educa-o-em-Direitos-Humanos
+# Educação-em-Direitos-Humanos
